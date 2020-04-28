@@ -8,3 +8,6 @@ super cool osu skins yeah
 
 # [aristia skin with cursor trail](https://cynthia.s-ul.eu/mu0foEpY)
 ![](https://media.discordapp.net/attachments/703682242395766838/704392055224532992/screenshot031.jpg?width=1482&height=834)
+
+# [heydt rafiswomb greenblue](https://cynthia.s-ul.eu/oMMAduZw)
+![](https://media.discordapp.net/attachments/703682242395766838/704646880570900635/screenshot033.jpg?width=1482&height=834)
